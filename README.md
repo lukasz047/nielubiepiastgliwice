@@ -1,6 +1,4 @@
-# PIAST NAJLEPSZY KLUB
+# TYLKO TĘCZA WIELOWIEŚ !!!!!><><><><><><><!>!<>!<!><!>!<>!<><!>!<>!<!><!>!<
 RUCH I GÓRNIK TO PSIARZE
-polecam to repozytorium bardzo
-REPOZYTORIUM FANÓW PIASTA
-GÓRNIK TO PEDAŁY NIEMYTE
+GÓRNIK I PIAST TO PEDAŁY NIEMYTE
 
