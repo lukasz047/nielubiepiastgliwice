@@ -1,5 +1,4 @@
 # nieluibiepiastgliwice
 super repozytorium
 polecam to repozytorium bardzo
-REPOZYTORIUM FANÓW PIASTA
-FANI GÓRNIKA TO GEJE
+REPOZYTORIUM FANÓW Górnika którzy nienawidzą piasta gliwice basta basta basta ... piasta
