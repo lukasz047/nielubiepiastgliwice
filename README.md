@@ -1,6 +1,6 @@
 # nieluibiepiastgliwice
 super repozytorium
 polecam to repozytorium bardzo
-REPOZYTORIUM FANÓW Górnika którzy nienawidzą piasta gliwice basta basta basta ... piasta
-hyythty
-555
+REPOZYTORIUM FANÓW PIASTA
+GÓRNIK TO PEDAŁY NIEMYTE
+
