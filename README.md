@@ -1,5 +1,5 @@
-# KOCHAM piastgliwice 
-super repozytorium
+# KOCHAM BURZA BOROWA WIEŚ
+PIAST I GÓRNIK TO PSIARZE
 polecam to repozytorium bardzo
 REPOZYTORIUM FANÓW PIASTA
 GÓRNIK TO PEDAŁY NIEMYTE
