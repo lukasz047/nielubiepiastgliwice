@@ -1,4 +1,4 @@
-# nieluibiepiastgliwice
+# kocham piastgliwice
 super repozytorium
 polecam to repozytorium bardzo
 REPOZYTORIUM FANÓW PIASTA
