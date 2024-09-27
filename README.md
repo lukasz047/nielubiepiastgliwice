@@ -1,4 +1,4 @@
-# kocham piastgliwice
+# nie luibie piastgliwice
 super repozytorium
 polecam to repozytorium bardzo
 REPOZYTORIUM FANÓW PIASTA
